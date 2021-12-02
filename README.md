@@ -7,6 +7,9 @@
 ## student
 ## 
 
+## i'm also known as shino (or a_shino (or shino_11235 depending on my mood))
+## i'm active on discord. i am A_Shino#8705 currently
+
 ---
 
 ### favourite languages
