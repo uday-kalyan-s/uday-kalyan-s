@@ -18,7 +18,9 @@
 2. javascript
 3. html
 4. css
+5. python
 
 ### favourite frameworks
 
 1. express
+2. angular
