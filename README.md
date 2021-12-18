@@ -11,7 +11,7 @@
 
 ---
 
-> i'm also known as shino (or a_shino (or shino_11235 depending on my mood)) <br> If you want to get in tough with me, use my discord profile.
+> i'm also known as shino (or a_shino (or shino_11235 depending on my mood)) <br> If you want to get in touch with me, use my discord profile.
 
 ---
 
