@@ -11,9 +11,15 @@
 
 ---
 
-> i'm also known as shino (or a_shino (or shino_11235 depending on my mood)) <br> i'm active on discord. i am A_Shino#8705 currently
+> i'm also known as shino (or a_shino (or shino_11235 depending on my mood)) <br> If you want to get in tough with me, use my discord profile.
 
 ---
+
+### social media contacts
+
+[![A_Shino](/assets/dsc.png "discord profile")](https://discordapp.com/users/687702479164669956)&nbsp;&nbsp;&nbsp;
+[![](/assets/rdt.png "Reddit profile")](https://www.reddit.com/user/Alarmed-Owl-7851)&nbsp;&nbsp;&nbsp;
+[![](/assets/twt.png "Twitter profile")](https://www.twitter.com/UdayKalyans1)
 
 ### favourite languages
 
