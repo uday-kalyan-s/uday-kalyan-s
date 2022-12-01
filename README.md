@@ -17,7 +17,7 @@
 ### social media contacts
 
 [![A_Shino](/assets/dsc.png "discord profile")](https://discordapp.com/users/687702479164669956)&nbsp;&nbsp;&nbsp;
-[![](/assets/rdt.png "Reddit profile")](https://www.reddit.com/user/Alarmed-Owl-7851)&nbsp;&nbsp;&nbsp;
+[![](/assets/rdt.png "Reddit profile")](https://www.reddit.com/user/A_Shino)&nbsp;&nbsp;&nbsp;
 [![](/assets/twt.png "Twitter profile")](https://www.twitter.com/UdayKalyans1)
 
 ### favourite languages
