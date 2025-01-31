@@ -1,4 +1,4 @@
-# coder11235
+# uday-kalyan-s
 
 ![uday-kalyan-s's GitHub stats](https://github-readme-stats.vercel.app/api?username=uday-kalyan-s&show_icons=true&count_private=true&theme=react)
 
