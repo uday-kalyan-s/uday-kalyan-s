@@ -22,7 +22,7 @@
 
 ### favourite languages
 
-1. typescipt
+1. typescript
 2. python
 3. rust (prolly forgot most of it)
 
